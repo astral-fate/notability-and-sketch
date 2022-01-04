@@ -1,3 +1,3 @@
 # notability-and-sketch
 
-![Screenshot_٢٠٢٢٠١٠٤-٢٢٠٠٤٣_LinkedIn](https://user-images.githubusercontent.com/63984422/148121458-4a86b1e8-56f8-41f2-a314-9f36bcb0b7cb.jpg)
+<img width="768" alt="CE23DEE8-CB95-4EB9-A98B-1C280F47F34D" src="https://user-images.githubusercontent.com/63984422/148121527-eea5824a-3e68-4c61-b7e5-61f15ccf16b7.png">
